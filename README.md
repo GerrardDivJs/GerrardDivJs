@@ -1,0 +1,4 @@
+- Hola Namaku Muhammad Gerrard Divario
+- Saya Seorang pelajar Yang Jatuh Cinta Dengan Komputer
+- Saya Lahir Di Subang 7 Juni 2009 Di Indonesia
+- 📫 ochesfabregas87@gmail.com
